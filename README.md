@@ -1,4 +1,4 @@
-### Hi there, I am Man Wah Li.👋
+### Hello, I am Man Wah Li.👋
 - 🌱 I’m currently studying Business Information Technology diploma at Red River College Polytechnic.
 - 📫 How to reach me: feel free to contact me at limanwah0924@gmail.com
 - 😄 Pronouns: He/Him/His
