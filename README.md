@@ -1,6 +1,6 @@
 ### Hello, I am Alvin (Man Wah) Li.👋
 - 🌱 I’m currently studying Business Information Technology diploma at Red River College Polytechnic.
-- 📫 How to reach me: feel free to contact me at limanwah0924@gmail.com
+- 📫 How to reach me: feel free to contact me at alvin.li.manwah@gmail.com
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I love database and programming!
 
